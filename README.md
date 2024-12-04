@@ -8,3 +8,12 @@ This line killed me 🤣"I guess one can think of the word twin as representing 
 Karmic fire that is what thept saying
 
 and two sinful person.
+
+
+How do you escape karma??
+
+oh just pray?
+
+and then what?
+
+NO they just party animals!
