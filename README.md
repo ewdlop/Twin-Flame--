@@ -7,4 +7,4 @@ This line killed me 🤣"I guess one can think of the word twin as representing 
 
 Karmic fire that is what thept saying
 
-and two sinnful person.
+and two sinful person.
