@@ -8,4 +8,4 @@ No worry he aint dying for this:
 
 <https://www.youtube.com/watch?v=E1ws8fZzq0s>
 
-#pray for his redemption
+#i ain't praying for his redemption
